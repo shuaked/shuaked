@@ -2,4 +2,4 @@
 # hellooo im max. 
 ### hazbin bitches dni. cool guy. write in my guestbook
 click links for more about me
-#### <B><strong>sfkr shippers DNI.
+#### <B><strong>sfkr shippers DNI. genshin fans are also on very thin ice.
