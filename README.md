@@ -1,6 +1,6 @@
 ![](https://38.media.tumblr.com/c34e76d2944d00b251908a9082cc7650/tumblr_n5ywzcTz4U1rkljv1o1_500.gif)
 # hellooo im max. 
-### hazbin bitches dni. cool guy. write in my guestbook
+### hazbin and genshin bitches dni. cool guy. write in my guestbook
 click links for more about me
-#### <B><strong>sfkr shippers DNI. genshin fans are also on very thin ice.
-also im not sure why i even have to state this but also DNI racists homophobes proship etc basic criteria
+#### <B><strong>sfkr shippers DNI.
+also im not sure why i even have to state this but + DNI racists, homophobes, proship, basic criteria, etc. block me if you fit any of these
