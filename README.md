@@ -3,4 +3,4 @@
 ### hazbin and genshin bitches dni. cool guy. write in my guestbook
 click links for more about me
 #### <B><strong>sfkr shippers DNI.
-also im not sure why i even have to state this but + DNI racists, homophobes, proship, basic criteria, etc. block me if you fit any of these
+also im not sure why i even have to state this but + DNI racists, homophobes, proship, etc. block me if you fit any of these
