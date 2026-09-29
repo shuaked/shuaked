@@ -7,7 +7,8 @@ im usually sitting with my friends but if we are from the same media do not be a
 # click links for more about me
 send me stuff and draw in my strawpage PLEASEE ! i do not bite
 #### <B><strong> -ˋˏ ✄ 一 一 一 一 一
-also DNI racists, homophobes, proship, zionist, etc. block me if you fit any of these
+also DNI racists, homophobes, pro/darkship (uisaki,stridercest,etc.), zionist, etc. block me if you fit any of these
+### add me on ournotes ! 38217672962 ; pMuBJ4hekN (friend code)
 
 <br>
 
